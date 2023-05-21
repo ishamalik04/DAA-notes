@@ -1,5 +1,3 @@
 # DAA-notes
 
 
-
-jnedj
